@@ -1,3 +1,9 @@
 # danielng1916
 # Danielng198968
 # danielng620
+# daniel-ng@github.com
+# Daniel620
+# daniel-ng620@cimb.com
+# daniel-ng@touchngo.com
+# nbc@nbcunivesal.org
+# nbc@nbcuniverse.inc
